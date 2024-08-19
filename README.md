@@ -26,4 +26,4 @@ Siempre estoy buscando nuevos desafíos que me permitan seguir desarrollándome 
 ¿Quieres ver algunos de mis trabajos? Te invito a visitar mis [repositorios en GitHub](https://github.com/tu-usuario) para explorar mis proyectos y colaboraciones.
 
 ## 📩 Contacto
-Puedes contactarme a través de [LinkedIn](www.linkedin.com/in/santiagoroquepalacio) o enviarme un correo electrónico. ¡Hablemos sobre cómo puedo agregar valor a tu equipo!
+Puedes contactarme a través de [LinkedIn](www.linkedin.com/in/santiagoroquepalacio) o enviarme un correo electrónico a santiagopalacio34@gmail.com . ¡Hablemos sobre cómo puedo agregar valor a tu equipo!
